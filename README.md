@@ -12,23 +12,23 @@ All variants included in the google drive link above.
 # [Aristia+ edit +mReKk](https://drive.google.com/file/d/1dVIq3CLLxVQkpvglgFAC2xl24-XzLm6R/view)
 ![](https://osu.ppy.sh/ss/16816850/4d8c)
 
-# [Monko Edit](https://rektygon.s-ul.eu/r36TbuaU)
-![](https://i.imgur.com/8tXwDP0.jpg)
+# [re;owoTuna v1.1](https://drive.google.com/drive/folders/1IAVMExrhvny9VSn3Gd3-48oOO5rYMDWo)
+![](https://cdn.discordapp.com/attachments/892416113365880835/892416502995746816/1596468461_screenshot9244.png)
 
-# [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
-![](https://i.imgur.com/o9VRoFm.png)
+# [-+ Seoul v9 Pineapple Color Updated](https://shigeskln.s-ul.eu/aZMjYmod)
+![](https://cdn.discordapp.com/attachments/892416113365880835/892417018404438137/68747470733a2f2f692e696d6775722e636f6d2f57704c79504d6e2e706e67.png)
 
-# [Dracula (old)](https://www.dropbox.com/s/n57ci29mq0ni815/dracula_final.osk?dl=1)
-![](https://skins.osuck.net/uploads/posts/2018-09/1537800520_oqggtfn.jpg)
+# [crystallized cookie v1.5](https://www.dropbox.com/s/n57ci29mq0ni815/dracula_final.osk?dl=1)
+![](https://cdn.discordapp.com/attachments/892416113365880835/892417420629794846/1537800520_oqggtfn.png)
 
-# [Jace 6.25](https://download2062.mediafire.com/sgw45zsh33cg/r4mclu4kgr600n7/Jace+6.25.osk)
-![](https://skins.osuck.net/uploads/posts/2019-07/1563799041_3.jpg)
+# [aetrnaberrateFujiwara v3](https://drive.google.com/file/d/194QK_MqUewN6HFvw1B8PopdSHDV0QeKf/view)
+![](https://cdn.discordapp.com/attachments/892416113365880835/892417641342464020/1584189023_screenshot8185.png)
 
-# [Seoul v9 Personal Skin](https://shigeskinss.s-ul.eu/csrv6H29)
-![](https://i.imgur.com/RBEwdpq.png)
+# [Azerite v1.2](https://drive.google.com/file/d/1HzoxHiUfTN8Y6p84EIzcwjZrzqJ4K1Nc/view)
+![](https://cdn.discordapp.com/attachments/892416113365880835/892417997254324384/1537791350_c8kzhkg.png)
 
-# [JTB x Kano](https://puu.sh/F13i5/33ef85de62.osk)
-![](https://osu.ppy.sh/ss/15436713/7524)
+# [《CK》 Bacon boi 1.0 『blue』](https://drive.google.com/drive/folders/1oXwqBrCgGK8EvSMAk0XAt1ixPJ-hbrzg)
+![](https://cdn.discordapp.com/attachments/892416113365880835/892418510876180550/1614321858_screenshot9400.png)
 
 # [RyuK boop](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://camo.githubusercontent.com/1baf3104e3be52fbdae1c27a8ed9b55073d0459e/68747470733a2f2f6f73752e7070792e73682f73732f31343733333935372f36636365)
