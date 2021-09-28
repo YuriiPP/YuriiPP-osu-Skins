@@ -1,9 +1,10 @@
-# mrekk-osu-Skins
-mrekk's osu! skins. List updated and maintained by DevenRam. DM me on discord if I'm forgetting a skin DevenRam#0855
+# YuriiPP-osu-Skins
+YuriiPP-osu-Skins
 
-# [【Mrekk 3.0】by Flowfy](https://drive.google.com/drive/folders/1H_KeIKxLPdFMkkehJIU4C_43kth-U9wk)
+# [【Whitecat 1.0】by Cyperdark](https://drive.google.com/drive/folders/1ck7IcwCJSC0QbQowneyTUhCIxMFqZTJR)
 All variants included in the google drive link above.
-![](https://i.imgur.com/FoMbCzw.png)
+![](![image](https://user-images.githubusercontent.com/91549662/135106240-f30a67e8-712d-43ea-8e80-fd414d159e65.png)
+)
 
 # [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
 ![](https://i.imgur.com/YULitvx.png)
