@@ -3,7 +3,7 @@ YuriiPP-osu-Skins
 
 # [【Whitecat 1.0】by Cyperdark](https://drive.google.com/drive/folders/1ck7IcwCJSC0QbQowneyTUhCIxMFqZTJR)
 All variants included in the google drive link above.
-![](![image](https://user-images.githubusercontent.com/91549662/135106240-f30a67e8-712d-43ea-8e80-fd414d159e65.png)
+![](https://cdn.discordapp.com/attachments/892416113365880835/892416141081837578/1573897221_3.png)
 )
 
 # [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
