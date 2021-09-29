@@ -33,6 +33,6 @@ All variants included in the google drive link above.
 # [RyuK boop](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://camo.githubusercontent.com/1baf3104e3be52fbdae1c27a8ed9b55073d0459e/68747470733a2f2f6f73752e7070792e73682f73732f31343733333935372f36636365)
 
-# [Aristia+ edit RyuK](https://download1642.mediafire.com/xwevs8y6vcsg/fmmuq6020lb8sda/Aristia%28Edit%29%2Btrail.osk)
-![](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
+# [Aristia+ edit RyuK](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2022.x%202017-08-10.osk)
+![](https://camo.githubusercontent.com/3cb08f62d20632b298ca44b34faf95425d8f93e897961639c0184e155543e96a/68747470733a2f2f7368696765736b696e73732e732d756c2e65752f4b4f75586f344349)
 
