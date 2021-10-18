@@ -36,3 +36,6 @@ All variants included in the google drive link above.
 # [Cookiezi 22.x 2017-08-10](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2022.x%202017-08-10.osk)
 ![](https://camo.githubusercontent.com/3cb08f62d20632b298ca44b34faf95425d8f93e897961639c0184e155543e96a/68747470733a2f2f7368696765736b696e73732e732d756c2e65752f4b4f75586f344349)
 
+# [azr8 YuriiPP edit](https://drive.google.com/drive/folders/1RvR3wg4o4gjo2Jz19E2yCKD85M1LhDE1)
+![](https://cdn.discordapp.com/attachments/892416113365880835/899457484257894450/screenshot008.jpg)
+
