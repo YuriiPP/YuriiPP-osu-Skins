@@ -7,7 +7,7 @@ All variants included in the google drive link above.
 )
 
 # [Rafis HDDT YuRii](https://drive.google.com/drive/folders/1lFDrH4UZATQiJUsFcwVehSMMtWdQGXmr?usp=sharing)
-![](https://i.imgur.com/YULitvx.png)
+![](https://cdn.discordapp.com/attachments/898021798862540831/899956296600678430/screenshot009.jpg)
 
 # [Aristia+ edit +mReKk](https://drive.google.com/file/d/1dVIq3CLLxVQkpvglgFAC2xl24-XzLm6R/view)
 ![](https://osu.ppy.sh/ss/16816850/4d8c)
