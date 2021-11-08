@@ -21,6 +21,6 @@ All variants included in the google drive link above.
 # [crystallized cookie v1.5](https://www.dropbox.com/s/n57ci29mq0ni815/dracula_final.osk?dl=1)
 ![](https://cdn.discordapp.com/attachments/892416113365880835/892417420629794846/1537800520_oqggtfn.png)
 
-# [azr8 YuriiPP edit](https://drive.google.com/drive/folders/1RvR3wg4o4gjo2Jz19E2yCKD85M1LhDE1)
+# [azr8 YuriiPP edit](https://yuriipp.s-ul.eu/7G37dcjg)
 ![](https://cdn.discordapp.com/attachments/892416113365880835/899457484257894450/screenshot008.jpg)
 
